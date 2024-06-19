@@ -12,5 +12,5 @@ Meu nome é Ryan mais conhicido como neguin
 
   @Ryan160-7
 
-  ![](https://media1.tenor.com/m/WeR1fN4iik8AAAAd/neymar-neymar-jr.gif)
+   ![](![image](https://github.com/Ryan160-7/Ryan160-7/assets/173219395/2c2e76f5-5f11-485d-899b-1421f3fbf17a)
   
